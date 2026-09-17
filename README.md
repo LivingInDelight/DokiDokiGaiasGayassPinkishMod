@@ -1,1 +1,1 @@
-# Doki Doki Gaias Gayass Pinkish Mod
+# Doki Doki Gaia's Gayass Pinkish Mod 💓
